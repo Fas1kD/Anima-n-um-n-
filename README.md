@@ -1,2 +1,3 @@
-# Anima-n-um-n-
+# Nefalšované kvalitní vlastnoročně vytvořené animace
+
 Moje vlastnoručně pečlivě připravené animace
